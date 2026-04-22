@@ -1,1 +1,3 @@
-# Vellum
+# VELLUM
+
+## READ. ORGANIZE. IMMERSE.
